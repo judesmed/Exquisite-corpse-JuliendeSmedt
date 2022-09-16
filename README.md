@@ -3,7 +3,7 @@ that did ate too much chees
 
 and had to go doctor cat :cat:
 
-who ate Ms Mouse
+who ate Ms Mouse 🐭
 
 but then realised that he did ate to much 
 
